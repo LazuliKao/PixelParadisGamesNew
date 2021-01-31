@@ -1,7 +1,7 @@
 # PixelParadisGamesNew
 PixelParadisGamesNew
 
-# 由于被抄袭、以及部分内容被不合理盗用！本地图不再对外发布！
+# 由于被抄袭、以及部分内容被不合理盗用！本地图（行为包）源文件不再对外发布！
 ## 网易中国版会继续更新！
 
 [MCbbs](https://www.mcbbs.net/thread-918656-1-1.html)
