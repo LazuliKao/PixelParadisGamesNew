@@ -10,6 +10,9 @@ PixelParadisGamesNew
 
 [Bilibili](https://www.bilibili.com/video/av96722938/)
 
+## 不得以任何方式转载本资源！！！
+## 某苦力怕论坛为非法转载！！！
+
 by gxh
 
 
